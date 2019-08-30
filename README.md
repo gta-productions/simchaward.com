@@ -1,3 +1,10 @@
+## My mistake
+
+Well, it turns out I actually bought two domains for you.  SimWard.net and SimchaWard.com, because i thought you'd like them and i enjoy doing stuff that makes my friends happy.  Turns out, you're actually just an ungrateful little shit who claims to "already have a website" but yet still can't figure out how to make it actually work.
+
+What a butthole.  You suck.
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/gta-productions/simchaward.com/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
